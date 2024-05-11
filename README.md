@@ -1,6 +1,6 @@
 # AnaliaFranco
 
-## Apresentação de Anália Franco: Sua Mentora Inteligente
+## Apresentação de Anália Franco: Sua Professora e Mentora Inteligente
 
 **Prezada(o) Estudante,**
 
